@@ -11,3 +11,8 @@
    // Houston, we have a problem
    }
 ` 
+6. __experience__: I don't have mutch but I am eager to get some. 
+1. __Education__: I am a self-learer and also I am studying on software engineering bachelo program.. ^_^ 
+1. __English__: I am watching and listening to english videos as long as I remember myself. 
+
+> and a quote for HR _Thank you for hiring me_ <<3>>
